@@ -1,0 +1,3 @@
+- Hi, I’m @RazaHanif
+- I’m currently at Sheridan College for SDNE in first year
+- Super newbie still learning 
